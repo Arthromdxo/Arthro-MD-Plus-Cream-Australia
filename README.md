@@ -15,7 +15,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
@@ -35,7 +34,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
@@ -55,7 +53,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
@@ -75,7 +72,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
@@ -113,7 +109,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
@@ -175,7 +170,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
@@ -197,7 +191,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
@@ -236,7 +229,6 @@
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #00ff00;">AUSTRALIA</span></strong>👇</div>
 </div>
 <h2><em>✅<strong><a href="https://careline360.com/artho-md-cream-au-buy">ARTHRO MD+ AUSTRALIA OFFICIAL PAGE &ndash; ORDER NOW</a></strong></em></h2>
-<h2><em>&nbsp;</em></h2>
 <div>
 <div>👇<strong>OFFICIAL PAGE FOR&nbsp;<span style="background-color: #ff9900;">CANADA</span></strong>👇</div>
 </div>
